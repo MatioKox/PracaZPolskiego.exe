@@ -1,1 +1,0 @@
-# PracaZPolskiego.exe
